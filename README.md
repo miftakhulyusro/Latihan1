@@ -100,5 +100,5 @@ hasil 01
 
 ![17](https://user-images.githubusercontent.com/46748866/51762395-312a0780-2102-11e9-8cdb-d97479b90536.png)
 
-Sekian dan Terimakasih ~miftakhul yusro~
+Sekian dan Terimakasih "miftakhul yusro"
 
